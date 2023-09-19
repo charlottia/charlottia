@@ -1,1 +1,1 @@
-Hiy!  Getting started~
+Hiy!
