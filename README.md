@@ -1,1 +1,1 @@
-Hiy! → [`kivikakk`](https://github.com/kivikakk).
+Hiy! → [`kivikakk`](https://hrzn.ee/kivikakk).
